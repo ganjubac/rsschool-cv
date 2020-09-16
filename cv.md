@@ -3,7 +3,7 @@
 ### Contact Info
 * Email:serega.tarasov.99@mail.ru
 * Phone: +79154772016
-* Telegram: sergeytarasov21
+* Telegram: @sergeytarasov21
 
 ### Summary
 I don't have any coding experience at the moment.My goal
